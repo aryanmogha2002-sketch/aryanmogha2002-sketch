@@ -4,7 +4,7 @@ Business Data Analytics senior at **Arizona State University (W. P. Carey School
 
 Looking for **data analyst and business analyst** roles with room to grow into AI, in Phoenix or remote.
 
-🌐 [Portfolio](https://aryanmogha2002-sketch.github.io) · 💼 [LinkedIn](https://www.linkedin.com/in/aryan-mogha-4bb933255) · ✉️ aryanmogha2002@gmail.com
+🌐 [Portfolio](https://aryanmogha2002-sketch.github.io) · 💼 [LinkedIn](https://www.linkedin.com/in/moghaaryan) · ✉️ aryanmogha2002@gmail.com
 
 ### Projects
 
